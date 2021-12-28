@@ -1,10 +1,14 @@
-# * I will try to keep this updated. If anything is broken DM me so I can fix it *
+# * I will try to keep this updated. *
+If anything is broken DM me so I can fix it *
 * [**xootynator Discord**](https://discord.gg/CardboardBox)
 * [**xootynator Twitch**](https://www.twitch.tv/xootynator)
 
+* If anything is broken DM me so I can fix it *
+* If a skin is missing or you are looking for other skins also feel free to DM me *
+
 Discord: **Bjönk#1911**
 
-:smirk: :nail_care: 
+:smirk: :nail_care: *girlboss time*
 
 ## [『BlooMoon Re;Done』 - ft. Xootynator ](https://bit.ly/3sw7qzW)
 ![](https://i.imgur.com/BU931jS.png)
