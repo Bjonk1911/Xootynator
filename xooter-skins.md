@@ -1,5 +1,5 @@
 # * I will try to keep this updated. *
-If anything is broken DM me so I can fix it *
+
 * [**xootynator Discord**](https://discord.gg/CardboardBox)
 * [**xootynator Twitch**](https://www.twitch.tv/xootynator)
 
