@@ -3,8 +3,8 @@
 * [**xootynator Discord**](https://discord.gg/CardboardBox)
 * [**xootynator Twitch**](https://www.twitch.tv/xootynator)
 
-* If anything is broken DM me so I can fix it *
-* If a skin is missing or you are looking for other skins also feel free to DM me *
+If anything is broken DM me so I can fix it 
+If a skin is missing or you are looking for other skins also feel free to DM me
 
 Discord: **Bjönk#1911**
 
