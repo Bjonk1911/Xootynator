@@ -21,13 +21,13 @@ Discord: **Bjönk#1911**
 ## [『BlooXoo』Cute Pink Cursor](https://drive.google.com/file/d/1vHD8zTAuY5PnPyhjqlGEInKUKLhyb8Te/view?usp=sharing)
 ![](https://i.imgur.com/2UD1Ctm.png)
 
-## [SameSkinButNoRingHitCirclesWeirdName - SS'er of Blue Dragons](https://drive.google.com/file/d/1PzgE4WmxVcXOv7hQPrQzfzGmkWkAft3v/view?usp=sharing)
+## [SameSkinButNoRingHitCirclesWeirdName - Rebirth](https://drive.google.com/file/d/1PzgE4WmxVcXOv7hQPrQzfzGmkWkAft3v/view?usp=sharing)
 ![](https://i.imgur.com/2fUiMGC.jpg)
 
 ## [SameSkinButNoRingHitCirclesWeirdName - osu!reported edition](https://drive.google.com/file/d/1ukkyvufm0jZ2btDXA_6xqNxnSav_grbP/view?usp=sharing)
 ![](https://i.imgur.com/FfCU44B.jpg)
 
-## [Thud2.1 - ancient xooty](https://drive.google.com/file/d/19oyDex0XSOfvBk7_tX7HdEXjtE4ZWlam/view?usp=sharing)
+## [Thud2.1 - SS'er of Blue Dragons](https://drive.google.com/file/d/19oyDex0XSOfvBk7_tX7HdEXjtE4ZWlam/view?usp=sharing)
 ![](https://i.imgur.com/Olk0VBd.jpg)
  
 ## [xooty mania skin](https://mega.nz/file/dOZxlQgA#9hU7wLeu_UMKgQXUF9wMXXTaJmznYPk25lGta-7061U)
