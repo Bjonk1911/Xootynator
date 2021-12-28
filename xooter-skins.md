@@ -10,17 +10,17 @@ Discord: **Bjönk#1911**
 ![](https://i.imgur.com/BU931jS.png)
 
 ## [『BlooXoo』Cyan Cursor](https://dain.cafe/xoo/-_BlooXoo_-.osk)
-![](https://imgur.com/kxzPWYx)
+![](https://i.imgur.com/kxzPWYx.png)
 
 ## [『BlooXoo』Long Blue Cursortrail](https://drive.google.com/file/d/1NyeyrayKGCWsvR08XpUgUddpSMFHBjsv/view?usp=sharing)
-![](https://imgur.com/ktaEFla)
+![](https://i.imgur.com/ktaEFla.png)
 
 ## [『BlooXoo』Green TryHard Cursor](https://drive.google.com/file/d/198VmN125CrVYB2khedz29yv-cK2HTOXz/view?usp=sharing)
-![](https://imgur.com/BKo0PZu)
+![](https://i.imgur.com/BKo0PZu.png)
 
 ## [『BlooXoo』Cute Pink Cursor](https://drive.google.com/file/d/1vHD8zTAuY5PnPyhjqlGEInKUKLhyb8Te/view?usp=sharing)
-![](https://imgur.com/2UD1Ctm)
+![](https://i.imgur.com/2UD1Ctm.png)
 
 ## [xooty mania skin](https://mega.nz/file/dOZxlQgA#9hU7wLeu_UMKgQXUF9wMXXTaJmznYPk25lGta-7061U)
-![](https://imgur.com/02Kkbzg)
+![](https://i.imgur.com/02Kkbzg.png)
 
