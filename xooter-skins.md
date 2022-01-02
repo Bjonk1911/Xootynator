@@ -14,6 +14,9 @@ Discord: **Bjönk#1911**
 ## [『BlooMoon Re;Done』 - ft. Xootynator ](https://bit.ly/3sw7qzW)
 ![](https://i.imgur.com/BU931jS.png)
 
+## [『BlooMoon Re;Done』 - ft. Xootynator Green TryHard Cursor ](https://drive.google.com/file/d/13HTriwuF7OjSPbKQHMcc6pjjP9Q436vb/view?usp=sharing)
+![](https://i.imgur.com/H8KSSx0.jpg)
+
 ## [『BlooXoo』Cyan Cursor](https://dain.cafe/xoo/-_BlooXoo_-.osk)
 ![](https://i.imgur.com/kxzPWYx.png)
 
