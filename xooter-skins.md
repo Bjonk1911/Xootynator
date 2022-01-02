@@ -10,7 +10,7 @@ If a skin is missing or you are looking for other skins also feel free to DM me.
 Discord: **Bjönk#1911**
 
 :smirk: :nail_care: *girlboss time*
-## [ xootynCursors Folder](https://drive.google.com/drive/folders/1DmeGqjTKRoWmHhdhYdfnsZWvTe7IUttt?usp=sharing)
+## [ xootynCursors Folder](https://drive.google.com/file/d/10w5NzbtQLMld98TBNjO_kqtpWMIBNnuR/view?usp=sharing)
 This folder just has all the cursors xooty likes to use, add them to whatever skins you'd like!
 
 ## [『BlooMoon Re;Done』 - ft. Xootynator ](https://bit.ly/3sw7qzW)
