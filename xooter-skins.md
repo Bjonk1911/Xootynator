@@ -11,13 +11,13 @@ Discord: **Bjönk#1911**
 
 :smirk: :nail_care: *girlboss time*
 ## [ xootynCursors Folder](https://drive.google.com/file/d/10w5NzbtQLMld98TBNjO_kqtpWMIBNnuR/view?usp=sharing)
-This folder just has all the cursors xooty likes to use, add them to whatever skins you'd like!
+This folder only has cursors that xooty likes to use, add them to whatever skins you'd like!
 
-## [『BlooMoon Re;Done』 - ft. Xootynator ](https://bit.ly/3sw7qzW)
-![](https://i.imgur.com/BU931jS.png)
-
-## [『BlooMoon Re;Done』 - ft. Xootynator Green TryHard Cursor ](https://drive.google.com/file/d/13HTriwuF7OjSPbKQHMcc6pjjP9Q436vb/view?usp=sharing)
+## [『BlooMoon Re;Done』 - ft. Xootynator Main Skin ](https://drive.google.com/file/d/1rFSY-1ng9EUB4I8yZH4zw6rkSAp4GOln/view?usp=sharing)
 ![](https://i.imgur.com/H8KSSx0.jpg)
+
+## [『BlooMoon Re;Done』 - ft. Xootynator Long Purple Trail ](https://drive.google.com/file/d/1Js4rjVjmmstL23nv_Og-FVWbBa2BZKD5/view?usp=sharing)
+![](https://i.imgur.com/BU931jS.png)
 
 ## [『BlooXoo』Cyan Cursor](https://dain.cafe/xoo/-_BlooXoo_-.osk)
 ![](https://i.imgur.com/kxzPWYx.png)
