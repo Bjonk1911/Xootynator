@@ -22,6 +22,9 @@ This folder only has cursors that xooty likes to use, add them to whatever skins
 ## [『BlooXoo』Cyan Cursor](https://dain.cafe/xoo/-_BlooXoo_-.osk)
 ![](https://i.imgur.com/kxzPWYx.png)
 
+## [『BlooXoo』Cyan Cursor](https://drive.google.com/file/d/1dGHdA6p2Jd4Awv9oHz69Z_qkLeXPFc-m/view?usp=sharing)
+![](https://i.imgur.com/vDV2Ikq.jpg)
+
 ## [『BlooXoo』Long Blue Cursortrail](https://drive.google.com/file/d/1NyeyrayKGCWsvR08XpUgUddpSMFHBjsv/view?usp=sharing)
 ![](https://i.imgur.com/ktaEFla.png)
 
