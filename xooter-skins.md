@@ -10,7 +10,7 @@ If a skin is missing or you are looking for other skins also feel free to DM me.
 Discord: **Bjönk#1911**
 
 :smirk: :nail_care: *girlboss time*
-## [ xootynCursors Folder](https://drive.google.com/file/d/1NKIxC3YScepT_xvPO7ALBuzvIw2FIuOR/view?usp=sharing)
+## [ xootynCursors Folder](https://drive.google.com/file/d/1ABAef9r-GPWiyzLbFrR-MhzxiePFwSh8/view?usp=sharing)
 This folder only has cursors that xooty likes to use, add them to whatever skins you'd like!
 
 ## [『BlooMoon Re;Done』 - ft. Xootynator Main Skin ](https://drive.google.com/file/d/1rFSY-1ng9EUB4I8yZH4zw6rkSAp4GOln/view?usp=sharing)
@@ -21,7 +21,7 @@ This folder only has cursors that xooty likes to use, add them to whatever skins
 
 ## [『BlooMoon Re;Done』 - ft. Xootynator Long Blue Trail ](https://drive.google.com/file/d/1-Q52NF-LhqBA5GWbqtKnEUoV7NubcaRL/view?usp=sharing)
 ![](https://i.imgur.com/oamiz1s.jpg)
-## [『BlooMoon Re;Done』 - Reedkussy ](https://drive.google.com/file/d/1dGHdA6p2Jd4Awv9oHz69Z_qkLeXPFc-m/view?usp=sharing)
+## [『BlooMoon Re;Done』 - Reedkussy ](https://drive.google.com/file/d/1Jwb13XvD20pWsJ4VFQDdgXIWX_GhZS2w/view?usp=sharing)
 ![](https://i.imgur.com/vDV2Ikq.jpg)
 
 ## [『BlooXoo』Cyan Cursor](https://dain.cafe/xoo/-_BlooXoo_-.osk)
