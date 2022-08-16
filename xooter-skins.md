@@ -21,8 +21,12 @@ This folder only has cursors that xooty likes to use, add them to whatever skins
 
 ## [『BlooMoon Re;Done』 - ft. Xootynator Long Blue Trail ](https://drive.google.com/file/d/1-Q52NF-LhqBA5GWbqtKnEUoV7NubcaRL/view?usp=sharing)
 ![](https://i.imgur.com/oamiz1s.jpg)
+
 ## [『BlooMoon Re;Done』 - Reedkussy ](https://drive.google.com/file/d/1Jwb13XvD20pWsJ4VFQDdgXIWX_GhZS2w/view?usp=sharing)
 ![](https://i.imgur.com/vDV2Ikq.jpg)
+
+## [『DTMoon』](https://drive.google.com/file/d/1CsM7cvMujLuhc30V6t2PFiLhqItqJ1QJ/view)
+![](https://i.imgur.com/8zMPxMk.png)
 
 ## [『BlooXoo』Cyan Cursor](https://dain.cafe/xoo/-_BlooXoo_-.osk)
 ![](https://i.imgur.com/kxzPWYx.png)
