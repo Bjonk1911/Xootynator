@@ -16,6 +16,9 @@ This folder only has cursors that xooty likes to use, add them to whatever skins
 ## [『BlooMoon Re;Done』 - ft. Xootynator Main Skin ](https://drive.google.com/file/d/1rFSY-1ng9EUB4I8yZH4zw6rkSAp4GOln/view?usp=sharing)
 ![](https://i.imgur.com/RNIGsG3.jpg)
 
+## [ Order For Bubbleman ](https://cdn.discordapp.com/attachments/300708892357165057/1247979012446359643/Thud2.1.osk?ex=6661fe86&is=6660ad06&hm=8c8f71e022221306180a422f11f417b60685db454c00fa54028841c4601f96b9&)
+![](https://femboy.beauty/xBTxT)
+
 ## [『BlooMoon Re;Done』 - ft. Xootynator Long Purple Trail ](https://drive.google.com/file/d/1Js4rjVjmmstL23nv_Og-FVWbBa2BZKD5/view?usp=sharing)
 ![](https://i.imgur.com/BU931jS.png)
 
