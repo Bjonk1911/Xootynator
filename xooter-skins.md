@@ -34,7 +34,7 @@ This folder only has cursors that xooty likes to use, add them to whatever skins
 ## [Sytho Alfie 1.25](https://drive.google.com/drive/folders/1TD8NRKw795CHtYt74w26uu37-53rv7YZ)
 ![](https://i.imgur.com/Zxs1aPM.png)
 
-## [『BlooXoo』Cyan Cursor](https://dain.cafe/xoo/-_BlooXoo_-.osk)
+## [『BlooXoo』Cyan Cursor](https://drive.google.com/file/d/1v_XEOpgMVD9tqgVzlHvazyku0y8bLYFH/view?usp=sharing)
 ![](https://i.imgur.com/kxzPWYx.png)
 
 ## [『BlooXoo』Long Blue Cursortrail](https://drive.google.com/file/d/1NyeyrayKGCWsvR08XpUgUddpSMFHBjsv/view?usp=sharing)
