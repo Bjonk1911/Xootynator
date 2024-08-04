@@ -16,6 +16,9 @@ This folder only has cursors that xooty likes to use, add them to whatever skins
 ## [『BlooMoon Re;Done』 - ft. Xootynator Main Skin ](https://drive.google.com/file/d/1rFSY-1ng9EUB4I8yZH4zw6rkSAp4GOln/view?usp=sharing)
 ![](https://i.imgur.com/RNIGsG3.jpg)
 
+## [ Order For Bubbleman ](https://femboy.beauty/O70tP)
+![](https://femboy.beauty/Y1LHg) 
+
 ## [ Order For Bubbleman ](https://femboy.beauty/d9B-5)
 ![](https://femboy.beauty/VQaQG) 
 
