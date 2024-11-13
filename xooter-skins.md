@@ -16,6 +16,9 @@ This folder only has cursors that xooty likes to use, add them to whatever skins
 ## [『BlooMoon Re;Done』 - ft. Xootynator Main Skin ](https://drive.google.com/file/d/1rFSY-1ng9EUB4I8yZH4zw6rkSAp4GOln/view?usp=sharing)
 ![](https://i.imgur.com/RNIGsG3.jpg)
 
+## [ xooGreenm ](https://femboy.beauty/d0R98)
+![](https://femboy.beauty/T-Ca7) 
+
 ## [ why squeak by enri ](https://femboy.beauty/3zzuY)
 ![](https://femboy.beauty/Y1LHg) 
 
