@@ -6,6 +6,9 @@
 ## [ xootynCursors Folder](https://drive.google.com/file/d/1ABAef9r-GPWiyzLbFrR-MhzxiePFwSh8/view?usp=sharing)
 This folder only has cursors that xooty likes to use, add them to whatever skins you'd like!
 
+## [Isaac miss sound](https://femboy.beauty/d7iQh)
+![](https://cdn.7tv.app/emote/01FDDY9ZDR000DW9BNHQ9MA6K3/4x.avif)
+
 ## [『BlooMoon Re;Done』 - ft. Xootynator Main Skin ](https://drive.google.com/file/d/1rFSY-1ng9EUB4I8yZH4zw6rkSAp4GOln/view?usp=sharing)
 ![](https://i.imgur.com/RNIGsG3.jpg)
 
