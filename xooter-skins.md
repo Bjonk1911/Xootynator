@@ -1,9 +1,14 @@
 * [**xootynator Discord**](https://discord.gg/CardboardBox)
 * [**xootynator Twitch**](https://www.twitch.tv/xootynator)
-
+* [**xootynator Instagram**](https://www.instagram.com/xootynator/?hl=en)
+* [**xootynator Patreon**](https://www.patreon.com/xootynator)
+* [**xootynator Twitter**](https://x.com/xootynator)
+* [**xootynator Youtube**](https://www.youtube.com/@xootynator)
+* [**xootynator Clips**](https://www.youtube.com/@xooty)
+* [**xootynator Vods**](https://www.youtube.com/@xootyvods)
 
 :smirk: :nail_care: *girlboss time*
-## [ xootynCursors Folder](https://drive.google.com/file/d/1ABAef9r-GPWiyzLbFrR-MhzxiePFwSh8/view?usp=sharing)
+## [ xootynCursors Folder](https://www.dropbox.com/scl/fi/p7wo8m0bre4nt9gm4suz8/Cursors.7z?rlkey=a47gueummx4eislc6g971rukq&st=ktk14y0p&dl=0)
 This folder only has cursors that xooty likes to use, add them to whatever skins you'd like!
 
 ## [Isaac miss sound](https://femboy.beauty/d7iQh)
