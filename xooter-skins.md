@@ -10,7 +10,7 @@ This folder only has cursors that xooty likes to use, add them to whatever skins
 ## [Isaac miss sound](https://femboy.beauty/d7iQh)
 ![](https://cdn.7tv.app/emote/01FDDY9ZDR000DW9BNHQ9MA6K3/4x.avif)
 
-## [『BlooMoon Re;Done』 - ft. Xootynator Long Blue Trail ](https://drive.google.com/file/d/1-Q52NF-LhqBA5GWbqtKnEUoV7NubcaRL/view?usp=sharing)
+## [『BlooMoon Re;Done』 - ft. Xootynator Long Blue Trail Updated ](https://femboy.beauty/-kRHay)
 ![](https://i.imgur.com/oamiz1s.jpg)
 
 ## [ why squeak by enri ](https://femboy.beauty/3zzuY)
