@@ -10,11 +10,11 @@ This folder only has cursors that xooty likes to use, add them to whatever skins
 ## [Isaac miss sound](https://femboy.beauty/d7iQh)
 ![](https://cdn.7tv.app/emote/01FDDY9ZDR000DW9BNHQ9MA6K3/4x.avif)
 
-## [『BlooMoon Re;Done』 - ft. Xootynator Long Blue Trail Updated ](https://femboy.beauty/-kRHay)
+## [『BlooMoon Re;Done』 - ft. Xootynator Long Blue Trail Updated ](https://www.dropbox.com/scl/fi/ecj286bpa7gwhgd2k8tyw/XooMoon-1.osk?rlkey=oo33s6prupe3cqgev2zblc3yy&st=qmw02ebm&dl=0)
 ![](https://i.imgur.com/oamiz1s.jpg)
 
-## [ why squeak by enri ](https://femboy.beauty/3zzuY)
-![](https://femboy.beauty/Y1LHg) 
+## [ why squeak by enri ](https://www.dropbox.com/scl/fi/m6bw3z2xdgbt77a95aaks/why-squeak-v3.osk?rlkey=5l7o5xcec40jfp0y72owxbsyu&st=atrxjlye&dl=0)
+![](https://cdn.discordapp.com/attachments/1074492433766826004/1385776029217591447/screenshot424.jpg?ex=68574bff&is=6855fa7f&hm=62a11f34f2ea36abba4603dbff01793abde14d3d86a3c6982740bff4b9b25ab9&) 
 
 ## [Sytho Alfie 1.25](https://drive.google.com/drive/folders/1TD8NRKw795CHtYt74w26uu37-53rv7YZ)
 ![](https://i.imgur.com/Zxs1aPM.png)
