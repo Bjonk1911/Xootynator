@@ -7,7 +7,7 @@
 ## [ xootynCursors Folder](https://www.dropbox.com/scl/fi/p7wo8m0bre4nt9gm4suz8/Cursors.7z?rlkey=a47gueummx4eislc6g971rukq&st=ktk14y0p&dl=0)
 This folder only has cursors that xooty likes to use, add them to whatever skins you'd like!
 
-## [Isaac miss sound](https://femboy.beauty/d7iQh)
+## [Isaac miss sound](https://www.dropbox.com/scl/fi/anj3opkbnaslm0yz082rm/combobreak.wav?rlkey=nf1sfi5gjtiu1d7h8kz7uetgm&st=7vnsf717&dl=0)
 ![](https://cdn.7tv.app/emote/01FDDY9ZDR000DW9BNHQ9MA6K3/4x.avif)
 
 ## [『BlooMoon Re;Done』 - ft. Xootynator Long Blue Trail Updated ](https://www.dropbox.com/scl/fi/ecj286bpa7gwhgd2k8tyw/XooMoon-1.osk?rlkey=oo33s6prupe3cqgev2zblc3yy&st=qmw02ebm&dl=0)
