@@ -14,7 +14,7 @@ This folder only has cursors that xooty likes to use, add them to whatever skins
 ![](https://i.imgur.com/oamiz1s.jpg)
 
 ## [ why squeak by enri ](https://www.dropbox.com/scl/fi/m6bw3z2xdgbt77a95aaks/why-squeak-v3.osk?rlkey=5l7o5xcec40jfp0y72owxbsyu&st=atrxjlye&dl=0)
-![](https://i.mgur.com/a/YkVMMEZ) 
+![](https://femboy.beauty/ZyZ3N3) 
 
 ## [Sytho Alfie 1.25](https://drive.google.com/drive/folders/1TD8NRKw795CHtYt74w26uu37-53rv7YZ)
 ![](https://i.imgur.com/Zxs1aPM.png)
@@ -27,6 +27,7 @@ This folder only has cursors that xooty likes to use, add them to whatever skins
  
 ## [xooty mania skin](https://mega.nz/file/dOZxlQgA#9hU7wLeu_UMKgQXUF9wMXXTaJmznYPk25lGta-7061U)
 ![](https://i.imgur.com/02Kkbzg.png)
+
 
 
 
