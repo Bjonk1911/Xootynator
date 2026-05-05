@@ -16,8 +16,8 @@ This folder only has cursors that xooty likes to use, add them to whatever skins
 ## [ why squeak by enri ](https://www.dropbox.com/scl/fi/m6bw3z2xdgbt77a95aaks/why-squeak-v3.osk?rlkey=5l7o5xcec40jfp0y72owxbsyu&st=atrxjlye&dl=0)
 ![](https://femboy.beauty/ZyZ3N3) 
 
-## [Sytho Alfie 1.25](https://drive.google.com/drive/folders/1TD8NRKw795CHtYt74w26uu37-53rv7YZ)
-![](https://i.imgur.com/Zxs1aPM.png)
+## [dokidokilolixx](https://www.mediafire.com/file/nty8enemlp0l2j9/doki_dt_mix_v3_%2528dokidokilolixx_2018-06-10%2529.osk/file)
+![](https://skins.osuck.net/images/screenshots/a6f5dade2add26caf4bde96d47ed36e3.webp)
 
 ## [SameSkinButNoRingHitCirclesWeirdName - osu!reported edition](https://drive.google.com/file/d/1ukkyvufm0jZ2btDXA_6xqNxnSav_grbP/view?usp=sharing)
 ![](https://i.imgur.com/FfCU44B.jpg)
